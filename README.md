@@ -1,4 +1,4 @@
-# QiYi-Secret-tutorial-for-magic-cubes
+# QiYi Secret tutorial for magic cubes
 
 Все фотки взяты из https://www.facebook.com/mofanggecube/
 Примеры постов:
